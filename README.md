@@ -56,3 +56,4 @@ Terus berupaya mengembangkan diri, berbagi pengetahuan, dan berkolaborasi dalam 
 
 > *"Building collaboration, sharing knowledge, and making an impact."* 🚀
 "# PORTFOLIO-PEOPOLE-ORGANAIZER" 
+"# PORTOFOLIO-PENGALAMAN-ORGANISASI" 
